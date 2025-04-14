@@ -1,0 +1,12 @@
+- Id rather say bye to you :)
+- 👀 I’m interested in YOUR MO-
+- 🌱 I’m currently learning school.
+- 💞️ I’m looking to collaborate on uhhhhhhhhhhhh idk
+- 📫 How to reach me: you dont.
+- 😄 Pronouns: E/Apache Attack Helicopter
+- ⚡ Fun fact: According to male human and female pokemon bre-
+
+<!---
+ImaLineOfCode/ImaLineOfCode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
